@@ -1,1 +1,1 @@
-link:  https://jinita1910.github.io/photography/
+link:  https://jinita-shrestha.github.io/photography/
